@@ -8,7 +8,9 @@
 Estudo no colégio Pio XII, estou interessada em aprender programação. 
 
 
-gosto de ler, escrever, desenhar e ouvir música.
+gosto de ler, desenhar e ouvir música.
+
+rock!
 
 
 🏳️‍🌈 LGBTQIA+
