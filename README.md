@@ -1,2 +1,1 @@
-
-LULAdrão roubou me coração S2S2
+He'l bring a little bit of love and joy
