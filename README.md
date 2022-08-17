@@ -1,1 +1,1 @@
-He'l bring a little bit of love and joy
+He'll bring a little bit of love and joy
